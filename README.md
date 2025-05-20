@@ -1,1 +1,1 @@
-# Owner-avatar-PPS-Unidad3Actividad22-David
+# PPS-Unidad3Actividad22-David
